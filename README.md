@@ -14,7 +14,7 @@
   <strong>📌 Byrutor游戏最新官网入口（2025持续更新）：</strong>
 </h3>
 <p> <strong>一键访问</strong> ：<a href="https://byrutor.sodanav.com/">最新官网入口</a></p>
-<p><strong>一键访问</strong> ：<a href=" https://youxi.ggonav.com/">游戏网站大全</a></p>
+<p> <strong>一键访问</strong> ：<a href="https://youxi.ggonav.com/">游戏网站大全</a></p>
 <p><strong>一键访问</strong> ：<a href="https://wangpanziyuan.pages.dev/">电子书/电影/音乐/漫画/游戏下载</a></p>
 <h3>
 
